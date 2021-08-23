@@ -9,3 +9,5 @@
 
 [2021-08-21 郭文贵先生直播摘要](https://github.com/ourhimalayas/news/blob/master/content/2021/08/1485656.md)
 > 【人们为什么要打疫苗？】【谁是疫苗战争的最大受益者？不是中国】【一个崭新的世界】這是一個對目前的大流行的一個階段性總結，未來會怎樣？
+
+[常用新冠预防及治疗方案](https://github.com/ourhimalayas/news/blob/master/content/2021/08/1485849.md)
