@@ -11,3 +11,6 @@
 > 【人们为什么要打疫苗？】【谁是疫苗战争的最大受益者？不是中国】【一个崭新的世界】這是一個對目前的大流行的一個階段性總結，未來會怎樣？
 
 [常用新冠预防及治疗方案](https://github.com/ourhimalayas/news/blob/master/content/2021/08/1485849.md)
+
+[为什么不要被打疫苗 - “绿化版”](https://github.com/ourhimalayas/news/blob/master/content/2021/08/1488010.md)
+> 为了便于传播，稍作删减
